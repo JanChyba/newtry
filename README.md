@@ -1,3 +1,7 @@
-# Hello-world
-This is my first repository
-I am looking forward to learning less.
+
+Ahaa takže tohle je safe pak
+
+=======
+Ahaa takže tohle je safe pak
+
+
