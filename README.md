@@ -1,4 +1,3 @@
 # Hello-world
 This is my first repository
-
-I am looking forward to learning github.
+Not a conflict wtf
