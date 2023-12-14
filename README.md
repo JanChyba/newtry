@@ -1,3 +1,3 @@
-# Hello-world
-This is my first repository
-Not a conflict wtf
+co kdyz napisu uplnou sracku
+co to 
+udela
