@@ -1,3 +1,3 @@
 # Hello-world
 This is my first repository
-I am looking forward to learning less.
+I am looking forward to learning github.
