@@ -1,3 +1,7 @@
-a co kdyz tohle nepujde co 
-mam 
-delat
+
+Ahaa takže tohle je safe pak
+
+=======
+Ahaa takže tohle je safe pak
+
+
