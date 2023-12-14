@@ -1,3 +1,3 @@
-# Hello-world
-This is my first repository
-I am looking forward to learning less.
+a co kdyz tohle nepujde co 
+mam 
+delat
