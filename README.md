@@ -1,3 +1,7 @@
-co kdyz napisu uplnou sracku
-co to 
-udela
+
+Ahaa takže tohle je safe pak
+
+=======
+Ahaa takže tohle je safe pak
+
+
